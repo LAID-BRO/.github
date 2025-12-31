@@ -1,6 +1,6 @@
 # LAID
 
-Welcome to the LAID!
+Welcome to the LAID, Legacy Alumni in Intelligence Development!
 
 We are a vibrant community of past members from our group, united by our passion and collaborative innovation. Here, we showcase the pioneering work of our graduates, share resources, and connect like-minded individuals. Our mission is to foster connections, highlight achievements, and build a supportive network for both current and former members. Join us as we continue to explore new horizons, grow together, and make lasting contributions to our field!
 
